@@ -1,2 +1,2 @@
-# paper_Risbey_Nature_ENSO
+# paper_Risbey+Squire_ENSO
 
